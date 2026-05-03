@@ -1,0 +1,1 @@
+# monicargos-assets
